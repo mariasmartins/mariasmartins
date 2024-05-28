@@ -9,7 +9,7 @@ me chamo Maria Eduarda
 - vou usar o Github para organizar meus projetos desenvolvidos com o alura
 
 
-**para entrar en contato comigo**
+**para entrar em contato comigo**
 
 0000110384670xsp@al.educacao.sp.gov.br
 
